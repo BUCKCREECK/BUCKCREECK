@@ -7,6 +7,6 @@
 - whatsapp +63921460112
 - https://www.liinks.co/aruta.ma.alpha
 - https://www.liinks.co/cheltrixtea.omega
-BUCKCREECK/mariaalpha is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+BUCKCREECK/maalpha is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
